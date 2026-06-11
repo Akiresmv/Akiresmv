@@ -10,6 +10,8 @@
 
 -Gosto de platinar jogos aleatórios🎮
 
-  Entre em contato comigo: wesley.velovele@escola.pr.gov.br
+  _Entre em contato comigo_
+  ig: wesley._.mv
+   wesley.velovele@escola.pr.gov.br
   
   ![](https://media.tenor.com/nWwAhboMp0kAAAAM/neymar-edit-neymar-jr.gif)
